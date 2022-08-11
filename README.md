@@ -15,4 +15,14 @@
 - what gets measured gets managed
 - dont critues. look for crites 
 
-## be brutaliy honest withyourself
+## be brutaliy honest with yourself
+
+## How to never quit
+- you can create motivation
+	- your thoughts are not yours
+	- motivation will run out
+- you need a suystem
+	- your why
+
+## Automate Your Success
+- systems 
